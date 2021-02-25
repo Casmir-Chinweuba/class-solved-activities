@@ -1,0 +1,1 @@
+# class-solved-activities
